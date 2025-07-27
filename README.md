@@ -4,7 +4,7 @@ Acesse agora um super pack com ** 100 páginas de vendas prontas**, testadas e v
 
 ## 🚀 O que você vai receber:
 
-- ✅ **Mais de 50 páginas de vendas** prontas para uso
+- ✅ **Pack com 100 páginas de vendas** prontas para uso
 - 🔥 Nichos como: **saúde, dinheiro, sexo** e muito mais
 - 💻 **Layouts modernos** e com estrutura validada para conversão
 - 🧩 **Arquivos editáveis**: personalize com facilidade para seus projetos
