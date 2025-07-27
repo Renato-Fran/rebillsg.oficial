@@ -1,6 +1,6 @@
-# 📦 Pack +50 Páginas de Vendas
+# 📦 Pack com 100 Páginas de Vendas
 
-Acesse agora um super pack com **mais de 50 páginas de vendas prontas**, testadas e validadas em nichos altamente lucrativos!
+Acesse agora um super pack com ** 100 páginas de vendas prontas**, testadas e validadas em nichos altamente lucrativos!
 
 ## 🚀 O que você vai receber:
 
